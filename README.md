@@ -1,1 +1,1 @@
-https://github.com/LeonokaysXd/Leonokaysxd-.git
+https://github.com/LeonokaysXd
